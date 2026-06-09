@@ -1,4 +1,4 @@
-# 
+# Instantâneo liquidity sniper bot predefinições para Mac OS | Inteligente liquidity sniper bot predefinições para PC Windows. Com análise de volume e cache de dados — otimizado para máximo desempeño en cada plataforma.
 
 
 
